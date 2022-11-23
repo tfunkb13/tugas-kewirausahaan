@@ -1,2 +1,0 @@
-# tugas-kewirausahaan
-tugas kewirausahaan
