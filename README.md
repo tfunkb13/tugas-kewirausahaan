@@ -1,1 +1,1 @@
-# flux-game-store reedit by kelompok kewirausahaan
+template by flux reedit by kelompok kewirausahaan
